@@ -1,4 +1,4 @@
-  # rocket says hello  ᵎ!ᵎ
+
   <img src="https://www.image2url.com/r2/default/images/1782619064395-53363465-e5e7-410f-a5cc-b9d7dde9cd13.gif" alt="image" width="1000" height="100"/>
 
 𓏲 ๋࣭ ࣪ ˖   i   go  by  $${\\color{#517cae}rocket}$$
