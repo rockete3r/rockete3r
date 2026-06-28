@@ -9,4 +9,4 @@ $${\\color{grey}call me rocket thoughh}$$<img src="https://cdn3.emoji.gg/emojis/
 
 > int with caution please , if you despise people with many disorders ! <img src="https://www.image2url.com/r2/default/images/1782621348928-ede28ee4-914b-4283-8097-1c5611cc35da.png" alt="image" width="30" height="30" />
 
-  wip. . . i dont have that much of screentime
+  wip. . . i dont have that much of screentime  ;-;
