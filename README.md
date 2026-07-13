@@ -5,5 +5,6 @@
 <p align="center">lazy chud.</p>
 <p align="center">⨾  ◟ fall   strucks   co-founder    ☰  c + h  freely  𓋰  َ  bmf ?  𐔌՞. .՞𐦯.</p>
 
+<img width="236" height="80" alt="image" src="https://github.com/user-attachments/assets/9251eb44-88fa-45cb-bf39-28c61b652b86" /> <-- this loser bro
 
 art cred : on pin > katsu !
