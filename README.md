@@ -16,7 +16,15 @@
       $$\color{#58a6ff}\text{wip }$$ 
       $$\color{##495085}\text{ meow }$$
       <img src="https://external-media.spacehey.net/media/sTyKifB4Yt4r1eiQlsx5UT11g-pR7eKwQIu0dMGsW5k4=/https://64.media.tumblr.com/dbfd6935c4b80a580a1f08e120366be8/9d5eab7ae30e9362-71/s100x200/66dc17e1b38efb18fd2f373a90d9855d08f1e776.gifv">
-    </td>
+      <details>
+  <summary>my veryy cool gang , yes u can bmf !!</summary>
+
+  • . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
+  @dr0wningsword @67kei @
+
+</details>
+
+    
   </tr>
 </table>
 
