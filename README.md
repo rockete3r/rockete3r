@@ -20,7 +20,7 @@
   <summary>my veryy cool gang , yes u can bmf !!</summary>
 
   • . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
-  @dr0wningsword @67kei @
+  @67kei @drowningsw0rd 
 
 </details>
 
