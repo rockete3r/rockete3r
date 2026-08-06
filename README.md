@@ -21,7 +21,7 @@
 
   • . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
   [@67kei](https://github.com/67kei) [@drowingsw0rd](https://github.com/drowningsw0rd)
-
+</details>
   
  <details> 
  <summary> what im seen as !</summary>
