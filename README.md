@@ -22,7 +22,12 @@
   • . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
   [@67kei](https://github.com/67kei) [@drowingsw0rd](https://github.com/drowningsw0rd)
 
+  
+ <details> 
+ <summary> what im seen as !</summary>
 
+<img src="https://cdn.phototourl.com/free/2026-08-06-22321f38-97a6-4ffc-906b-3fddd49dd3b7.gif">
+my tritype , or rocket(wip)!
 </details>
 
     
