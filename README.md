@@ -1,7 +1,6 @@
 ![Profile Views :D](https://komarev.com/ghpvc/?username=rockete3r&color=blue&style=flat)
 
 
-<p align="center"><img src="https://www.image2url.com/r2/default/images/1785592838012-e50af9eb-c7bd-4358-8f6f-8739848c06a5.png" alt="image" height="300" width="1000"/></p>
 
 
 
@@ -17,14 +16,15 @@
       $$\color{##495085}\text{ meow }$$
       <img src="https://external-media.spacehey.net/media/sTyKifB4Yt4r1eiQlsx5UT11g-pR7eKwQIu0dMGsW5k4=/https://64.media.tumblr.com/dbfd6935c4b80a580a1f08e120366be8/9d5eab7ae30e9362-71/s100x200/66dc17e1b38efb18fd2f373a90d9855d08f1e776.gifv">
       <details>
-  <summary>my veryy cool gang , yes u can bmf !!</summary>
+  <summary> twins </summary>
 
   • . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
   [@67kei](https://github.com/67kei) [@drowingsw0rd](https://github.com/drowningsw0rd)
+  bmf too meow !!
 </details>
   
  <details> 
- <summary> what im seen as !</summary>
+ <summary> often see me in </summary>
 
 <img src="https://cdn.phototourl.com/free/2026-08-06-22321f38-97a6-4ffc-906b-3fddd49dd3b7.gif">
 my tritype , or rocket(wip)!
