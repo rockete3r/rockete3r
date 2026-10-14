@@ -23,11 +23,7 @@
   bmf too meow !!
 </details>
   
- <details> 
- <summary> often see me in </summary>
-
-<img src="https://cdn.phototourl.com/free/2026-08-06-22321f38-97a6-4ffc-906b-3fddd49dd3b7.gif">
-my tritype , or rocket(wip)!
+ hi wont be online much.
 </details>
 
     
